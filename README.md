@@ -1,1 +1,0 @@
-# sevgilimim-dogum-gunu-sitesi
